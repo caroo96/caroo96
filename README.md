@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hola 👋 Soy Caro y he comenzado mi aventura en el mundo de la programación😅
 
 <!--
 **caroo96/caroo96** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
