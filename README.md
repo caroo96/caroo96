@@ -16,8 +16,8 @@
 	📫<a href="https://mail.google.com/mail/u/0/#inbox"> caroolina.ag@gmail.com </a>
 </div>
 
- 
 
+![¡hola!](https://github.com/caroo96/caroo96/assets/133178284/d2989944-1648-40e1-a762-aefda885a43b)
 
 
 
